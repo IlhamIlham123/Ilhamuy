@@ -1,2 +1,0 @@
-# Ilhamuy
-Apaan sih 
